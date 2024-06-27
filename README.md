@@ -6,6 +6,8 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 - 🤩 I am student of coding skills and i like to solve the problems in this and i give my most time in this skill to more impore it
+- ![MilkAndMochaBearsGIF](https://github.com/kunalpatel196/kunalpatel196/assets/140698610/8d088456-6329-4401-8c3c-9ada9327ae4f)
+
 
 <!---
 kunalpatel196/kunalpatel196 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
