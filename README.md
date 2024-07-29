@@ -6,7 +6,6 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 - 🤩 I am student of coding skills and i like to solve the problems in this and i give my most time in this skill to more impore it
-- ![MilkAndMochaBearsGIF](https://github.com/kunalpatel196/kunalpatel196/assets/140698610/8d088456-6329-4401-8c3c-9ada9327ae4f)
 - ![68747470733a2f2f6d69726f2e6d656469756d2e636f6d2f6d61782f3638302f302a37513379765349765f7430696f4a2d5a2e676966](https://github.com/user-attachments/assets/76119490-6386-4ab0-a040-3389dd1a38dd)
 - more and thanks 
 
