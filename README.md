@@ -6,7 +6,9 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 - 🤩 I am student of coding skills and i like to solve the problems in this and i give my most time in this skill to more impore it
- ![68747470733a2f2f6d69726f2e6d656469756d2e636f6d2f6d61782f3638302f302a37513379765349765f7430696f4a2d5a2e676966](https://github.com/user-attachments/assets/76119490-6386-4ab0-a040-3389dd1a38dd)
+      ![68747470733a2f2f692e696d6775722e636f6d2f644261534b57462e676966](https://github.com/user-attachments/assets/1485d984-b63f-456e-9477-9d1c59dfed1c)
+
+  ![68747470733a2f2f6d69726f2e6d656469756d2e636f6d2f6d61782f3638302f302a37513379765349765f7430696f4a2d5a2e676966](https://github.com/user-attachments/assets/76119490-6386-4ab0-a040-3389dd1a38dd)
 - more and thanks 
 
 
